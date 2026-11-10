@@ -1,5 +1,6 @@
 <img width="1431" height="1708" alt="Image" src="https://github.com/user-attachments/assets/03ee3997-104c-47ef-9434-fc42a6fceccb" />
 
+please do not drag me into your personal dramas, people do make mistakes but i dont mind if theyre actively trying to be better and heal.
 <!--
 **demoIitionIovers/demoIitionIovers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
